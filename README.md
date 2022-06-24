@@ -1,1 +1,1 @@
-# terms-of-condition
+# terms-of-use
